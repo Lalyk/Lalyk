@@ -1,6 +1,6 @@
 ### Oie! Eu sou a Lauanny (mas pode me chamar de Laly) (≧∀≦)ゞ
 
-- 🌱 Atualmente estudo na Generation Brasil
+- 🌱 Estudante
 - 📫 Contate-me no e-mail: laly.elf@gmail.com
 - 😄 Pronomes: ela/dela
 
